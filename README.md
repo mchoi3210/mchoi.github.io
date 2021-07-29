@@ -1,2 +1,2 @@
-# mchoi.github.io
+# Mingyeong Choi's page
 Mingyeong Choi's page
